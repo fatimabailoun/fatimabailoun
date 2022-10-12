@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @fatimabailoun
+- 👀 I’m a data scientist
+- 📫 How to reach me:
+- by mail: bayloonfatima2001@gmail.com 
+-or on all social media platforms : @fatimabailoun
